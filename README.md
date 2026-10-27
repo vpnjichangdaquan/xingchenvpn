@@ -11,7 +11,7 @@
 
 ## 官网注册入口
 
-[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰VPN官方注册入口](https://a.wwaann.com/?s=xcvpn)
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
 ---
@@ -420,6 +420,6 @@ YouTube 对网络线路和访问速度较为敏感。
 
 星辰VPN套餐、节点数量、线路类型以及服务规则可能随时间调整，本文内容基于目前提供的公开资料整理，实际情况请以官网最新信息为准。
 
-[星辰VPN官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰VPN官方注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
